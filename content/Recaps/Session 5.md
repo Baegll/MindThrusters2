@@ -16,7 +16,7 @@ Cart gets stolen by [[Zendus Brimhaven (Attractive Driver)]], he ends up dying. 
 
 [[Beagorug (Bug)]] takes a good inspection at some of the parties items to have a poormens find person
 
-[[Sgt. Fuzzytale]] commander of the finest nut distribution this side of Cradle. 
+[[Sgt. Fuzzytail]] commander of the finest nut distribution this side of Cradle. 
 
 We learned that [[Zendus Brimhaven (Attractive Driver)]] was swinging tree to tree like a monkey on his way to [[Cradle]] after crashing his cart.
 
