@@ -4,7 +4,7 @@ Stole money from dying unconscious driver.
 
 From [[Chastara]]
 
-Has likely done [[Silk Root]]
+Has done [[Silk Root]] a few times
 
 Has a 'famous' dad named [[]]
 

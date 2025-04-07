@@ -96,7 +96,7 @@ async function renderGraph(graph: HTMLElement, fullSlug: FullSlug) {
     ]),
   )
   const data: Map<SimpleSlug, ContentDetails> = new Map(
-    [...originalData.entries()].filter(([key, value]) => {
+    [...originalData.entries()].filter(([_, value]) => {
     return !value.tags?.includes("HideThis")
     })
   )

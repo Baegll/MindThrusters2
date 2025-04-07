@@ -2,7 +2,7 @@ talks with either a lisp or an accent you can't quite tell, chills with Sack
 
 From [[Chastara]]
 
-Has done [[Silk Root]]
+Has done [[Silk Root]] a few times
 
 <!OOC>Can know where people are by psychic energy potentially
 Can Read Undercommon

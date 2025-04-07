@@ -11,6 +11,8 @@ Momma used to call me [[Seabird]]
 
 Talked with a [[Sgt. Fuzzytail]] during [[Session 5]] when trying to find [[Zendus Brimhaven (Attractive Driver)]]
 
+I've started a list of Story beats I want to initiate in [[Aurelia Planning Scenes]]
+
 ## Story Beats
 When I picked up the [[Feywild Fire Brandy]], a vision sends me to see a massive translucent stork. Kneeling in front of the stork is a 2 year younger Aurelia. I reach for my sword, its not there. I am just a shadow. When I make a move the stork looks at me in the vision and states. 'Curious, youre not needed here little [[Seabird]], fly home.' I get blown away and get sent back to *reality*.
 
