@@ -3,7 +3,7 @@ likes bugs, very organized
 
 A divorced woman
 
-The Book
+Their spellbook has a wonderful sultry sexy man voice apparently. 
 
 From [[South Shore City]]
 

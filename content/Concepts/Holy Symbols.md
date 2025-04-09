@@ -1,0 +1,1 @@
+Powerful Cleric/Paladin items that channel their gods/goddess' powers.
