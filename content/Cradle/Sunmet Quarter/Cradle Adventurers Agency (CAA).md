@@ -1,0 +1,1 @@
+Only represents heroes with [[CCL (Cradle Clout Level)]] of at least 10.

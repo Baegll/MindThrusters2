@@ -50,7 +50,7 @@ const defaultOptions: GraphOptions = {
     centerForce: 0.5,
     linkDistance: 75,
     fontSize: 4,
-    opacityScale: -1.3,
+    opacityScale: 2.5,
     removeTags: ['HideThis'],
     showTags: false,
     enableRadial: true,

@@ -52,7 +52,7 @@ fishing line and hooks, compass, astrolabe, sextant. Divorced dad things
 ##### [[Xanavaika]]
 A small set of fishing hooks and lines. (a little tacklebox) A deck of cards, loose change.
 
-#### What would your character listen to? 
+#### What would your character listen to? [[Session 5]]
 ##### [[0TT0]]
 silence interrupted by metal pipe noises, industrial dubstep
 ##### [[Aurelia]]
@@ -68,6 +68,22 @@ white noise / screamo metal
 ##### [[Xanavaika]]
 ambient meditative type music
 
+#### What is their wildest dream to spend a Dragons Hoard of gold
+##### [[0TT0]]
+Start up their own automaton facility for research and production
+##### [[Aurelia]]
+Get kitted to the nines, and then start up a research facility on Biology
+##### [[Ball Sack]]
+Start up their own Record Label
+##### [[Beagorug (Bug)]]
+A big fuck-off house. Fill it from floor to ceiling with bookshelves full of stuffs. Hoard lots of magical trinkets mr magoriums wonder emporium. Half library, half cat-cafe
+##### [[Drexajuuk]]
+A wonderful billboard of them drinking ThrustCola
+Realistically would try to find an elixir of immortality.
+##### [[Findus]]
+Do Breaking Bad. College fund for his daughter
+##### [[Xanavaika]]
+A big, fishing boat with a crew, the most expensive fishing gear, wizard services
 
 
 =====

@@ -26,7 +26,7 @@ Her attire is both practical and refined. Beneath a well-traveled cloak she wear
 
 At her left hip sits a sidesword, a swept hilt of iron branches protecting her hand, made of darkened steel. Her buckler on the right hip is small, but has enough space for her holy symbol, a carving of an ancient twisting tree with roots that spiral outward in an endless interwoven pattern. Both the swept hilt of the sidesword and the tree embossed on the buckler glow faintly the same hues as the rivets in her armor, soft greens, bronzes and faintly silver. In addition to her primary weapons, a simple dagger rests near her stomach stuck in her belt comfortably. Attached to her right leg is a handaxe, the simple blade facing behind her, so she might quickly rip it from her leg and throw it at a running target.
 
-A satchel clinks under her buckler, full of alchemical wares, glass vials full of shimmering liquids of varying hues. A small backpack with many pockets smells fragrantly of different flowers, mushrooms, herbs, and even various parts of creatures. A hidden coin purse sits on her hip with her sword, reminding her of the power that can come from wealth.
+A satchel clinks under her buckler, full of alchemical wares, glass vials full of shimmering liquids of varying hues. A small backpack with many pockets smells fragrantly of different flowers, mushrooms, herbs, and even various parts of creatures. A hidden coin purse sits on her hip with her sword, reminding her of the power that can come from wealth. The only ring adorning her hands is a simple iron band.
 
 ## Backstory
 

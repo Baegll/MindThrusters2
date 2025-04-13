@@ -23,7 +23,6 @@ We learned that [[Zendus Brimhaven (Attractive Driver)]] was swinging tree to tr
 In a place far away, we dont know:
 There is a tattered cloak, a burned bald head hunched forward with their hands on a table. Across from them, there is a figure shrouded in darkness with a head made of flame.
 
-"Right well, theres been an update. Twice this group of shitheads has foiled me." -Masked
-"Deal with them, or I deal with you" -Flame Skull
-
+"Right well, theres been an update. Twice this group of shitheads has foiled me." -[[Plague Masked Man]]
+"Deal with them, or I deal with you" -[[Flame Headed Man]]
 #HideThis 
