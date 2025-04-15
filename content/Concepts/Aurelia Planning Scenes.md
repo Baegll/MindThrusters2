@@ -1,7 +1,8 @@
 Page full of story beats I'd like to hit potentially/if possible.
+#HideThis 
 ## Intra-Party
 
-- [ ] Scene where I perform a Ceremony of protection on [[The Crew]].
+- [ ] Scene where I perform a Ceremony of protection on [[Mind Goblins]].
 * In depth description of the ritual I take them through
 	* details...
 * Ask DM if we could get some sort of benefit maybe, but totally acceptable with no benefit. Primarily want it to be a nice RP moment
@@ -27,5 +28,26 @@ Page full of story beats I'd like to hit potentially/if possible.
 - [ ] 
 
 ## Story
-- [ ] Wtf goin on with [[Zendus Brimhaven (Attractive Driver)]]
+- [ ] Wtf goin on with [[Zendus Brimhaven (Attractive Driver)]]?
+- [ ] Why is [[Wyatt Westpaw]] in [[Avernus]]?
+
+## Goals
+### Short
+- [ ] Start up a [[base of operations]] in [[Cradle]].
+- [ ] Figure out the current Power Politics in [[Cradle]].
+- [ ] Cement her position as a new potion-selling noble. 
+- [ ] Win a game of [[The Bluffing Game]].
+- [ ] 
+### Medium
+- [ ] Gain some powerful fey-slaying gear.
+- [ ] Gain or create some powerful allies.
+- [ ] Track down a portal to the [[Feywild]].
+- [ ] Confront a lesser Fey successfully.
+- [ ] Protect the [[base of operations]] with anti-fey protections.
+- [ ] 
+### Long
+- [ ] Learn why the [[Archfey]] chose her.
+- [ ] Take back her shadow from the [[Archfey]].
+	- [ ] Kill the [[Archfey]].
+- [ ] Return to [[Cassian Aria]] or get over him.
 - [ ] 

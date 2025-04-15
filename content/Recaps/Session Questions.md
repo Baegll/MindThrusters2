@@ -1,4 +1,4 @@
-[[The Crew]]'s session questions
+[[Mind Goblins]]'s session questions
 ##### [[0TT0]]
 ##### [[Aurelia]]
 ##### [[Ball Sack]]

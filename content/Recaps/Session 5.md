@@ -12,7 +12,7 @@ LOTS of character moments in rapid fire
 
 Party rages on
 
-Cart gets stolen by [[Zendus Brimhaven (Attractive Driver)]], he ends up missing. [[The Crew]] gets attacked by a Black Ooze which reanimates two horses.
+Cart gets stolen by [[Zendus Brimhaven (Attractive Driver)]], he ends up missing. [[Mind Goblins]] gets attacked by a Black Ooze which reanimates two horses.
 
 [[Beagorug (Bug)]] takes a good inspection at some of the parties items to have a poormens find person
 
