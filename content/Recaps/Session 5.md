@@ -25,4 +25,5 @@ There is a tattered cloak, a burned bald head hunched forward with their hands o
 
 "Right well, theres been an update. Twice this group of shitheads has foiled me." -[[Plague Masked Man]]
 "Deal with them, or I deal with you" -[[Flame Headed Man]]
+
 #HideThis 
