@@ -85,6 +85,22 @@ Do Breaking Bad. College fund for his daughter
 ##### [[Xanavaika]]
 A big, fishing boat with a crew, the most expensive fishing gear, wizard services
 
+#### What age did you have your first kiss?
+##### [[0TT0]]
+10 year old robot, no kisses yet
+##### [[Aurelia]]
+15 years old to her now divorced husband
+##### [[Ball Sack]]
+when with his tribe, in celebration gave a quick passing kiss as a teenager (4)
+##### [[Beagorug (Bug)]]
+early teens (for a goblin) (3? 4?) 
+##### [[Drexajuuk]]
+got a first kiss at 33 when he saved a villager, did not realize anything about it at all.
+##### [[Findus]]
+playground kiss type beat, 10 or 11?
+##### [[Xanavaika]]
+
+
 
 =====
 #HideThis 

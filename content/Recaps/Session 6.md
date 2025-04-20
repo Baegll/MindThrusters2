@@ -27,7 +27,7 @@ Theres a [[Runic Processing Chamber]] on the enterance to [[Cradle]]. which scan
 
 We enter [[Cradle]] for the first time! Massive Metropolis where theres lots of people, shit tons of people. Lots of people in magic gear.
 
-We party ways with [[Gogus]], [[Draven]], and [[Raven]].
+We part ways with [[Gogus]], [[Draven]], and [[Raven]].
 
 We head to [[Miracle Ward]] to find the [[Silver Talon Riding Club]] to get a place to stay by fencing the [[Silk Root]]. [[Ball Sack]] talks to [[Binty]] who refers us to [[Vic Ethanol]] upstairs. They let us stay one night for the drugs.
 
@@ -63,6 +63,11 @@ Lots of electrocution victims going to the hospital currently. From a blue drago
 
 Aurelia heals another person and gets pointed to someone who can give us more information. (i didnt write down the name oops)
 
+### Group 2
+[[Ball Sack]], [[Xanavaika]], [[0TT0]] to [[Plugg's Butt-Ugly Stuff Hut]]
+
+### Group 3
+[[Beagorug (Bug)]] to the library
 #### Cut-Away
 We see a [[Burned Masked Figure]] deliver lots of blood to a [[Red Eyed Elf]]. "Heres food for your thralls, now we need you to send them after those.. mind goblins"
 
