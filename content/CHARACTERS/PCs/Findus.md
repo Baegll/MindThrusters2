@@ -1,3 +1,6 @@
+
+Findus Glockenspiel
+
 Human fighter
 Father of a daughter
 horse girl

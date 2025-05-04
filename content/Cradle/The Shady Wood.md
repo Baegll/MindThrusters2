@@ -1,1 +1,3 @@
-Largest wooded area near [[Cradle]]
+Largest wooded area near [[Cradle]].
+
+[[Sgt. Fuzzytail]] commands from here.

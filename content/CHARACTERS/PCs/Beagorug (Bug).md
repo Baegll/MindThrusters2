@@ -1,14 +1,17 @@
-goblin, crafty, wizard
-likes bugs, very organized
+Pronounced bay-go-rug
 
-A divorced woman
+Beagorug Fernfinder
 
-Their spellbook has a wonderful sultry sexy man voice apparently. 
+Really liked [[Delios]] (horny)
 
-From [[South Shore City]]
-
-[[Bugs old Crew]]
-knows [[Scooter]] from college, does not want to date [[Scooter]], did date [[Oskja 'farsight']]
+## Assorted Notes
+- goblin, crafty, wizard
+- likes bugs, very organized
+- divorced
+- Their spellbook has a different voice for every spell, and identify is a wonderful sultry sexy man voice apparently. 
+- From [[South Shore City]]
+- Bug has an old crew detailed in: [[Bugs old Crew]]
+- knows [[Scooter]] from college, does not want to date [[Scooter]], did date [[Oskja 'farsight']]
 
 ### Goals
 #### Short

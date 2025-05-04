@@ -100,7 +100,21 @@ got a first kiss at 33 when he saved a villager, did not realize anything about 
 playground kiss type beat, 10 or 11?
 ##### [[Xanavaika]]
 
-
+#### What is a hidden talent?
+##### [[0TT0]]
+Really good at cultivating Orchids.
+##### [[Aurelia]]
+Good at making potions. A little bit of an alchemist.
+##### [[Ball Sack]]
+Really good at competitive eating.
+##### [[Beagorug (Bug)]]
+Can fit her entire hand in her mouth.
+##### [[Drexajuuk]]
+Avid birdwatcher, encyclopedic knowledge of birds species.
+##### [[Findus]]
+He would be kinda good at writing poety, but does not often participate.
+##### [[Xanavaika]]
+Make-up artist
 
 =====
 #HideThis 

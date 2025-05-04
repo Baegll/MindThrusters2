@@ -1,22 +1,18 @@
 my girl :)
 
-Owes [[Sylwarin]] a favor
 
-Worships [[Chauntea]]
+## Loose notes
+- [x] Owes [[Sylwarin]] a favor
+- Worships [[Chauntea]]
+- Holy symbol is a [[Stork]]
+- From the region [[Eralbelle]]
+- Momma used to call me [[Seabird]]
+- Goals, plans and more listed in [[Aurelia Planning Scenes]]
 
-Holy symbol is a [[Stork]]
-
-from the region [[Eralbelle]]
-Momma used to call me [[Seabird]]
-
-Talked with a [[Sgt. Fuzzytail]] during [[Session 5]] when trying to find [[Zendus Brimhaven (Attractive Driver)]]
-
-I've started a list of Story beats I want to initiate in [[Aurelia Planning Scenes]]
-
-Has the [[Creepy Doll (Drawing)]]
 ## Story Beats
 When I picked up the [[Feywild Fire Brandy]], a vision sends me to see a massive translucent stork. Kneeling in front of the stork is a 2 year younger Aurelia. I reach for my sword, its not there. I am just a shadow. When I make a move the stork looks at me in the vision and states. 'Curious, youre not needed here little [[Seabird]], fly home.' I get blown away and get sent back to *reality*.
 
+When [[Sylwarin]] stabbed me in the back after knocking at the door interrupting [[A Ceremony of Blessing (Drawing)]]and I hit the floor of [[Westpaw's Wondrous Wares]] I saw a vision of [[Cassian Aria]], and two children running around a homely rustic house. One of the children, my child, says "Not yet Momma." and I feel a knife sink into the [[Creepy Doll (Drawing)]] and I stabilize on the floor, barely breathing.
 
 
 ## External Descriptors
