@@ -69,7 +69,7 @@ Aurelia heals another person and gets pointed to someone who can give us more in
 ### Group 3
 [[Beagorug (Bug)]] to the library
 #### Cut-Away
-We see a [[Burned Masked Figure]] deliver lots of blood to a [[Red Eyed Elf]]. "Heres food for your thralls, now we need you to send them after those.. mind goblins"
+We see a [[Plague Masked Man]] deliver lots of blood to a [[Red Eyed Elf]]. "Heres food for your thralls, now we need you to send them after those.. mind goblins"
 
 
 #HideThis 

@@ -116,5 +116,38 @@ He would be kinda good at writing poety, but does not often participate.
 ##### [[Xanavaika]]
 Make-up artist
 
+#### Who would you save?
+##### [[0TT0]]
+Aurelia
+##### [[Aurelia]]
+Bug
+##### [[Ball Sack]]
+Xan
+##### [[Beagorug (Bug)]]
+Aurelia
+##### [[Drexajuuk]]
+0TT0
+##### [[Findus]]
+Bug
+##### [[Xanavaika]]
+Ball Sack
+#### If you had 1 use of Wish, what would they use it for.
+##### [[0TT0]]
+'I wanna be a real boy'
+To understand his spark
+##### [[Aurelia]]
+Go back before the deal with the Archfey
+##### [[Ball Sack]]
+Prevent For The Republic from meeting his clan
+##### [[Beagorug (Bug)]]
+Hold onto it forever "I'll think about it"
+##### [[Drexajuuk]]
+Travel to the elemental planes
+##### [[Findus]]
+A ton of money (to change his future)
+##### [[Xanavaika]]
+Conjure a fishing empire, and be at the head of it.
+
+
 =====
 #HideThis 

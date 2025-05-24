@@ -1,4 +1,6 @@
 #HideThis 
+[[Session 7]]
+
 COMBAT at the top of the session!
 
 [[Sylwarin]] runs away like a bitch and turns into a bat.

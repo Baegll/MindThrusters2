@@ -10,6 +10,8 @@ Has a 'famous' dad named
 
 Running from [[Chastara]]'s [[For the Republic's Records]]. Recognized [[Slender Shadow]]
 
+In Twilight forest, comes across a leathery skinned satyr holding a golden harp. They have a classic musicians duel. For a favor if the satyr wins, and a crystallized mic if ball sack wins
+
 ### Goals
 #### Short
 Explore other honorable and less criminal means of making money

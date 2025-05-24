@@ -14,6 +14,7 @@ When I picked up the [[Feywild Fire Brandy]], a vision sends me to see a massive
 
 When [[Sylwarin]] stabbed me in the back after knocking at the door interrupting [[A Ceremony of Blessing (Drawing)]]and I hit the floor of [[Westpaw's Wondrous Wares]] I saw a vision of [[Cassian Aria]], and two children running around a homely rustic house. One of the children, my child, says "Not yet Momma." and I feel a knife sink into the [[Creepy Doll (Drawing)]] and I stabilize on the floor, barely breathing.
 
+In [[Twilight Forest]] I walk next to a green robed person. There are other shadowless!? The first steps have begun!? I get told to continue my path, but fail the challenge
 
 ## External Descriptors
 
