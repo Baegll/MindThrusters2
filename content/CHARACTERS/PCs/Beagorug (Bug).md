@@ -12,6 +12,7 @@ Really liked [[Delios]] (horny)
 - From [[South Shore City]]
 - Bug has an old crew detailed in: [[Bugs old Crew]]
 - knows [[Scooter]] from college, does not want to date [[Scooter]], did date [[Oskja 'farsight']]
+- Ex is [[Davos Alonmore]]
 
 ### Goals
 #### Short

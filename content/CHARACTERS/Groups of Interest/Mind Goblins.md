@@ -6,6 +6,7 @@
 [[Drexajuuk]]
 [[Findus]]
 [[Xanavaika]]
+[[Scoochiticus Boochiticus Maximus I]]
 ### NPCs in good standing
 [[Gogus]] - left the party to meet up with some hill dwarf friends. Still open to re-joining the party if we need his skills. Probably in [[Guy Town]]
 [[Draven]] - left the party to go work cushy desk jobs somewhere in [[Cradle]]
